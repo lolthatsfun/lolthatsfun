@@ -4,4 +4,4 @@
 - 📫 How to reach me:
 - - shi#9603 (336880386175008768)
 - - @shnva06ka:matrix.org
-Email: shinonova@gmail.com
+- Email: shinonova@gmail.com
